@@ -1,0 +1,1 @@
+# Copy-Text-From-Image-IOS-Support-URL
